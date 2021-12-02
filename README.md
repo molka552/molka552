@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me:Twitter:Boughanmi Molka 
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: when i am stressed i spend a lot time sleeping or contact with nature like sea or mountain or meditation 
-💕😘 Be happy don't worry 💖🤣
+          💕😘 Be happy don't worry 💖🤣
 -->
