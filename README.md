@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on traineeship
 - 🤔 I’m looking for help with AI
 - 💬 Ask me about development web or Mobile
-- 📫 How to reach me:Twitter:Boughanmi Molka 
+- 📫 How to reach me:https://twitter.com/bg_molka
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: when i am stressed i spend a lot time sleeping or contact with nature like sea or mountain or meditation 
           💕😘 Be happy don't worry 💖🤣
